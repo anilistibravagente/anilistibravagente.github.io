@@ -1,4 +1,4 @@
-| Brava persona | Telegram | Anilist | 🍆🍑 |
+| | Telegram | Anilist | 🍆🍑 |
 | :-- | :-- | :-- | :--: |
 | **Roccobot** | @Roccobot | [Roccobot](https://anilist.co/user/Roccobot/) | ♂ |
 | **Xemnas** | @zXemnas | [Xemnas](https://anilist.co/user/Xemnas/) | ♂ |
